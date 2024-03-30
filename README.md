@@ -1,4 +1,3 @@
-# 💫 About Me:
 🔭 Não sei o que estou fazendo aqui<br>👯 Alguém me tira daqui!<br>🤝 Preciso de ajuda<br>🌱 Odeio programar<br>💬 Não falem comigo<br>⚡ aaaaaaaaaaaaaa
 
 
